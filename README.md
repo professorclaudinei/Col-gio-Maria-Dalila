@@ -1,2 +1,2 @@
-# Col-gio-Maria-Dalila
+# Colégio-Maria-Dalila
 Ensino Fundamental e Médio
